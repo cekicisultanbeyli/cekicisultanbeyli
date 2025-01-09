@@ -5,9 +5,9 @@ Sultanbeyli çekici Hizmeti 10 dk içinde yanınızdayız
 
 sultanbeylicekici.biz
 
-[sultanbeyli ağrısı](https://sultanbeylicekici.biz/)
+[sultanbeyli çekici](https://sultanbeylicekici.biz/)
 
-[sultanbeyli ağrısı](https://sultanbeylicekici.biz/)
+[sultanbeyli çekici](https://sultanbeylicekici.biz/)
 
 [sultanbeyli çekicileri tıklayın](https://sultanbeylicekici.biz/)
 
